@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AnaMaesta (ana.rueda@escola.pr.gov.br)
-- 👀 ...eu odeio um monte de coisas, e eu particularmente não gosto de nada.
-- 🌱 ...O que eu tenho não é um sonho porque vou torna-lo realidade.
+- 👀 ...aloaaaaaaaaaahdgaty xhjd,kBHFJ CCHJbed BIFSJ sim
+- 🌱 ...ME  AJUDA COMO DIMINUI A FONTE????€??????
 - 💞️ ...Vou restaurar meu clã e matar um certo alguém.
 - 📫 How to reach me ... top 17 melhores frases de sasuke uchiha google pesquisar
 
