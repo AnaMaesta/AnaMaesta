@@ -7,7 +7,7 @@
 
 .> 💞️ >>> samuu^^ 
 
-.> 📫 How to reach me >>> champagne problems - taylor swift uwu
+.> 📫 How to reach me >>> champagne problems - taylor swift Uwu
 
 xoxo
 
