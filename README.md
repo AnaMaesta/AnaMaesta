@@ -9,4 +9,7 @@
 
 .> 📫 How to reach me >>> champagne problems - taylor swift
 
-                                                   --  xoxo
+xoxo
+
+![](https://media.tenor.com/go-yBi6NWnIAAAAC/ranpo-edogawa.gif)
+
